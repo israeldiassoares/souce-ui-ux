@@ -1,1 +1,1 @@
-Create for UI and UX studies purpose. 
+Created for UI and UX studies purpose. 
